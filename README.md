@@ -1,0 +1,1 @@
+# Second-hand-trading-platform
